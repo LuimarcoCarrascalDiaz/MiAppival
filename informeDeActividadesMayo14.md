@@ -3,7 +3,7 @@
 ![image](https://github.com/user-attachments/assets/567d585c-82cf-4397-9b94-53b380a25a0b)
 ![Captura de pantalla 2025-05-13 223912](https://github.com/user-attachments/assets/73cb0c37-4588-483a-be37-c312b2f1b8fe)
 ![Captura de pantalla 2025-05-13 231209](https://github.com/user-attachments/assets/ad2dca50-0259-4654-8031-301942806b78)
-.
+..
 
 
 
