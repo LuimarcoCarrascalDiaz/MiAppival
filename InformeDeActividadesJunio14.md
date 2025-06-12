@@ -4,6 +4,8 @@
 ![image](https://github.com/user-attachments/assets/f23eb552-e701-4c94-a62e-d7ddcbe0d7d4)
 ![Captura de pantalla 2025-06-06 081820](https://github.com/user-attachments/assets/cdb1b26b-a5ac-4eb1-856c-70d2c2ebf640)
 ![image](https://github.com/user-attachments/assets/25c01cb6-d9a5-422b-9160-fddb1edd24bb)
+![image](https://github.com/user-attachments/assets/941b940a-893f-4b51-9871-c31840542147)
+
 
 
 .
