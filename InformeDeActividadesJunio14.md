@@ -8,6 +8,7 @@
 ![Captura de pantalla 2025-06-13 104428](https://github.com/user-attachments/assets/3cd1d80f-8a17-4052-acae-d520cf871d0a)
 ![Captura de pantalla 2025-06-13 115927](https://github.com/user-attachments/assets/3241a499-1679-48c8-a5d7-372029d78705)
 ![Captura de pantalla 2025-06-13 135933](https://github.com/user-attachments/assets/e01f9e2f-4b5e-4349-8b4d-0f02fb1fe39b)
+.
 
 
 
