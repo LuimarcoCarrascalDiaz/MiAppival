@@ -1,2 +1,3 @@
 
 ![Captura de pantalla 2025-07-07 122620](https://github.com/user-attachments/assets/480c2de1-2d81-428b-8317-13ab356a70b8)
+![image](https://github.com/user-attachments/assets/0ec6e248-7845-4b6c-8ee0-430d101c1a59)
